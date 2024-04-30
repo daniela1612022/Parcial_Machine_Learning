@@ -2,7 +2,7 @@ Datos Integrantes:
 
 Daniela Pinzón Callejas - C.C. No. 1031640754 - daniela.pinzon01@usa.edu.co
 
-Miguel Ángel Thomas Gonzalez - C.C. No.  - miguel.thomas01@usa.edu.co
+Miguel Ángel Thomas Gonzalez - C.C. No. 1002236419 - miguel.thomas01@usa.edu.co
 
 Daniel Felipe Oviedo Trujillo - C.C. No. 1000143228 - daniel.oviedo01@usa.edu.co
 
